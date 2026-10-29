@@ -14,3 +14,6 @@ Não tive muitas opções de conteúdos além dos próprios livros em PDF, acabe
 Perguntei de forma básica sobre a criação de personagem, para que ele me ajudasse, inclusive pedi que ele criasse um personagem com algumas características especificas e ele concluiu a tarefa de forma bem correta utilizando o livro do jogador como fonte principal. Também pedi um mapa mental da criação de personagem.
 
 Outra pergunta interessante foi: Como faço para usar uma magia de mago nível 1. Ele usou o livro do jogador para explicar passo a passo como faço para utilizar a magia de mago seguindo as regras corretas.
+
+# Link
+https://notebook.google.com/notebook/9a09ceb1-ed93-42d9-9ce2-146f67fe18cc
